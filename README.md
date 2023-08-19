@@ -2,7 +2,7 @@
 
 I love teaching, sharing and talking at conferences
 
-if you're interested in having me speak at a conference you are organizing, please send me a message at marvin@appslab.co.ke or join me [on twitter](https://twitter.com/marvin_hosea).
+If you would like me to participate as a speaker at the conference you are coordinating, kindly reach out to me via a message at: marvin[AT]appslab.co.ke or join me [on twitter](https://twitter.com/marvin_hosea).
 
 ## 2022
 
